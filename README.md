@@ -1,0 +1,1 @@
+Ola me chamo Alex David mais conhecido como GodZinn ou god e estou estudando para conseguir meu primeiro emprego como dev web quero ser um dev web full stack e e so isso flw ate a proxima!!!!um chero no coraçao de vcs
